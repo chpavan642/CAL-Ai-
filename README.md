@@ -481,8 +481,8 @@ It helps others discover the project and motivates future improvements.
 
 **Pavan Ch**
 
-- GitHub: https://github.com/chpavan0007
-- LinkedIn: *(Add your LinkedIn profile here)*
+- GitHub: https://github.com/chpavan642
+- LinkedIn: https://www.linkedin.com/in/pavan-ch-483869190/
 
 ---
 
